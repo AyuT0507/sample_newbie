@@ -1,2 +1,2 @@
 # sample_newbie
-Newbie lol, will come uo soon..
+Newbie lol, will rise up soon..
