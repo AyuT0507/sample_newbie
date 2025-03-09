@@ -1,2 +1,0 @@
-# sample_newbie
-nothing..
